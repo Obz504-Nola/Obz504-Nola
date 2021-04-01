@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm O.B.Z, spells(o-bee-zee) 👋
 
 <!--
 **Obz504-Nola/Obz504-Nola** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
